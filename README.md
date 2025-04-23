@@ -1,4 +1,4 @@
-# 🛩️ Aviator.host – Uçuşa Hazır mısınız?
+# 🛩️ Aviator - www.aviator.host – Uçuşa Hazır mısınız?
 
 **aviator.host**, yüksek hızda ve güvenilir yapısıyla **Aviator oyunu tutkunları** için özel olarak tasarlandı. Yeni nesil oyun altyapısı, sade arayüzü ve kesintisiz bağlantı garantisiyle öne çıkıyor.
 
